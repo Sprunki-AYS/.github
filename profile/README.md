@@ -3,7 +3,7 @@
 Hey there! Today, I'm going to inform you about a fantastic cool recreation known as Sprunki AYS. This sport is truely fun and clean to play, even in case you're not definitely proper at games. So, let's dive in and notice what Sprunki AYS is all about!
 
 
-## [CLICK TO PLAY Sprunki Bland Edition](https://incrediboxsprunki.online/sprunki/sprunki-bland-edition)
+## [CLICK TO PLAY Sprunki AYS!](https://incrediboxsprunki.online/sprunki/sprunki-ays)
 
 ## [Play Colorbox Mustard Games!](https://colorboxmustard.online/)
 
